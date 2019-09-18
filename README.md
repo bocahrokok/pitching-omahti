@@ -18,3 +18,11 @@ Well because i have been looking for organization that combine two stuff : commu
 5. rekrutmen 2 kali
 6. documentation for people to self-study about specific things
 7. Product managers school. 
+8. Nudging people to intern in outside indonesia.
+9. Project2
+10. A interview and internship docs for omahti member.
+11. Sharing session of internship and acing CV
+
+# Opinion:
+
+I think omahti has this huge opportunity as the organization, why? because oti is on the right time. we have oppotunity as it student and we have talent. we have market. this is something that certain discpline have.
